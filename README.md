@@ -41,4 +41,4 @@ OnlineEdu BC는 이 부분에 초점을 맞췄습니다.
 
 ## Action - 0.2 version
 
-![img_5045](https://user-images.githubusercontent.com/897510/40751422-a4d3e3f8-649d-11e8-8546-70d297aa9b2e.jpg)
+![crytocurrency_economy_](https://user-images.githubusercontent.com/43138243/45547138-b0592600-b85a-11e8-86de-727769c398cd.jpg)
